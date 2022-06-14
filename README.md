@@ -2,6 +2,8 @@
 Trabajo programación 
 
 los mienbros del grupo son :
+
+
 -Samuel Eliseo Mendoza Hernández MH21020
 
 -Jesús Alejandro Góchez Paiz GP21039
