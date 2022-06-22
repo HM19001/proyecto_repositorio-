@@ -1,5 +1,7 @@
 # proyecto_repositorio-
-Trabajo programación 
+Trabajo programación  integrantes :
+
+
 1-
 
 2-
