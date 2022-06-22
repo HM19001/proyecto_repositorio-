@@ -14,7 +14,7 @@ Trabajo programación  integrantes :
 
 6-
 
-7-
+7-Carlos Daniel Cota Solano Carnet CS21051
 
 8-
 
