@@ -4,7 +4,7 @@ Trabajo programación  integrantes :
 
 1-Denis Alexis Rosales Gonzalez Carnet RG21070
 
-2-
+2-Samuel Eliseo Mendoza Hernandez Carnet MH21020
 
 3-
 
