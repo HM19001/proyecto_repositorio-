@@ -2,7 +2,7 @@
 Trabajo programación  integrantes :
 
 
-1-
+1-Denis Alexis Rosales Gonzalez Carnet RG21070
 
 2-
 
