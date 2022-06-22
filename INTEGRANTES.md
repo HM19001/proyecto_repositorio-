@@ -6,7 +6,7 @@ Trabajo programación  integrantes :
 
 2-Samuel Eliseo Mendoza Hernandez Carnet MH21020
 
-3-
+3-Douglas Edenilson Cardona Mendoza  CM20039
 
 4-Jesus Alejandro Góchez Paiz Carnet GP21039
 
