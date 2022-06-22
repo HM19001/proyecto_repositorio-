@@ -14,7 +14,7 @@ Trabajo programación  integrantes :
 
 6-Ofelia Esmeralda Hernandez Mancia   Hm19055
 
-7-
+7-Rolando Estuardo Salguero Borja  SB21023
 
 8-
 
