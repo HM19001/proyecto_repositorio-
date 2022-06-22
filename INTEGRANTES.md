@@ -12,7 +12,7 @@ Trabajo programación  integrantes :
 
 5-Carlos Daniel Cota Solano Carnet CS21051
 
-6-
+6-Ofelia Esmeralda Hernandez Mancia   Hm19055
 
 7-
 
