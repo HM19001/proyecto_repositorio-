@@ -8,7 +8,7 @@ Trabajo programación  integrantes :
 
 3-
 
-4-
+4-Jesus Alejandro Góchez Paiz Carnet GP21039
 
 5-
 
