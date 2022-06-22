@@ -10,11 +10,11 @@ Trabajo programación  integrantes :
 
 4-Jesus Alejandro Góchez Paiz Carnet GP21039
 
-5-
+5-Carlos Daniel Cota Solano Carnet CS21051
 
 6-
 
-7-Carlos Daniel Cota Solano Carnet CS21051
+7-
 
 8-
 
