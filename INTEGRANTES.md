@@ -16,7 +16,7 @@ Trabajo programación  integrantes :
 
 7-Rolando Estuardo Salguero Borja  SB21023
 
-8-
+8-Jose Alexander Perez Giron PG21032
 
 9-Bryan Edgardo Hernandez Martinez Carnet HM19001
 
